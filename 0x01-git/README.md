@@ -1,1 +1,1 @@
-My software plan
+My plan
